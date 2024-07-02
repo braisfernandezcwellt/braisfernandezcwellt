@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @braisfernandezcwellt
 
-My personal account is @braiso_22
+My personal account is @braiso-22
